@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new pump.fun sniper bot | auto-sell + back-running, the #1 pump.fun sniper bot. Includes auto-sell and back-running for a faster and more profitable
 
 
 
